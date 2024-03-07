@@ -28,4 +28,4 @@
 
 ## Sreyashi Das
 
-## Shreyashee Biswas
+## Shreyasee Biswas
